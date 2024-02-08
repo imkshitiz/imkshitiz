@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kshitizsingh102@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Pjvnuw0N7NoU3Zv6ReqHlKMdkb64XY0i/view?usp=sharing](https://drive.google.com/file/d/1Pjvnuw0N7NoU3Zv6ReqHlKMdkb64XY0i/view?usp=sharing)
+- 📄 Know about my experiences [https://docs.google.com/document/d/11kOvNI4ZpVd3eEMfuBgQfPp5jmao3tCL2oEnBlNwjnY/edit?usp=sharing](https://docs.google.com/document/d/11kOvNI4ZpVd3eEMfuBgQfPp5jmao3tCL2oEnBlNwjnY/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
